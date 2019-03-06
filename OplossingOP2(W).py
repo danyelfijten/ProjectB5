@@ -11,3 +11,5 @@ IK WIL NIET DAT JIJ NOG AAN DIT BESTAND KOMT <<<<>>>>
 WOUTER qWAS hIER VERSIE
 
 vresie 3
+
+Hoi ik ben het, peter
